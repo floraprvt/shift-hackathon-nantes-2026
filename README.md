@@ -1,0 +1,1 @@
+# shift-hackathon-nantes-2026
